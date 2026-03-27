@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VIGI861226MDFLMN05
+VIGI861226MDFLMN05
